@@ -1,1 +1,202 @@
 # 100
+the
+of
+and
+a
+to
+in
+is
+you
+that
+it
+he
+was
+for
+on
+are
+as
+with
+his
+they
+I
+at
+be
+this
+have
+from
+or
+one
+had
+by
+word
+but
+not
+what
+all
+were
+we
+when
+your
+can
+said
+there
+use
+an
+each
+which
+she
+do
+how
+their
+if
+will
+up
+other
+about
+out
+many
+then
+them
+these
+so
+some
+her
+would
+make
+like
+him
+into
+time
+has
+look
+two
+more
+write
+go
+see
+number
+no
+way
+could
+people
+my
+than
+first
+water
+been
+call
+who
+oil
+its
+now
+find
+long
+down
+day
+did
+get
+come
+made
+may
+part
+100 самых используемых слов в разговорной речи
+a, an
+after
+again
+all
+almost
+also
+always
+and
+because
+before
+big
+but
+(I) can
+(I) come
+either/or
+(I) find
+first
+for
+friend
+from
+(I) go
+good
+goodbye
+happy
+(I) have
+he
+hello
+here
+how
+I
+(I) am
+if
+in
+(I) know
+last
+(I) like
+little
+(I) love
+(I) make
+many
+one
+more
+most
+much
+my
+new
+no
+not
+now
+of
+often
+on
+one
+only
+or
+other
+our
+out
+over
+people
+place
+please
+same
+(I) see
+she
+so
+some
+sometimes
+still
+such
+(I) tell
+thank you
+that
+the
+their
+them
+then
+there is
+they
+thing
+(I) think
+this
+time
+to
+under
+up
+us
+(I) use
+very
+we
+what
+when
+where
+which
+who
+why
+with
+yes
+you
+your
